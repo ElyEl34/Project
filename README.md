@@ -1,1 +1,1 @@
-stupid proyect made by stupid AI
+stupid project made by stupid AI
